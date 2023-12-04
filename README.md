@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shivam00230
-- 👀 I’m interested in data analyst
+- 👀 I’m interested in Business analyst
 - 🌱 I’m currently learning business analyst
 - 💞️ I’m looking to collaborate on data professional
 - 📫 How to reach me shivamty0020@gmail.com
